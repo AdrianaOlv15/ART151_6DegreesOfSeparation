@@ -1,1 +1,3 @@
 # ART151_6DegreesOfSeparation
+Hello!
+While I was working on this project, for some reason I got a flashback of looking at pictures of colorful birds. That's where the idea of making this mini-project related to colors came from. I found a picture of a yellow bird, and when I tried to think of birds for the other colors, I realized I knew other animals that had the other colors. That's when I decided that instead of only birds I could use different types for every page! As the result, I ended up having a different type of animal represent each of the color for each of the pages. I hope you enjoy! if you know any little kids feel free to show it too. 
